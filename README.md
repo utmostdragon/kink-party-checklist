@@ -82,7 +82,7 @@ If you need help, feel unsafe, unsure about things, please talk to other people 
 - Passport or other kind of photo ID (Personalausweis) - Events are 18+
 - Drivers license if you arrive by car
 - Health insurance card (Hope you won't need that, but better to have on hand)
--  [organ donor card](https://www.organspende-info.de)  (REALLY hope you won't need it)
+- [Organ donor card](https://www.organspende-info.de)  (REALLY hope you won't need it)
 
 - Some cash (some locations may be cash only)
 - Credit/Debit Card

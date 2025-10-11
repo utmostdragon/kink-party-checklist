@@ -10,7 +10,7 @@
 -  [Restriction](#restriction)
 	-  [Ropes](#ropes)
     - [Other Methods](#other-methods-of-restriction)
-- [Fire/Wax Play](#fire/wax-play)
+- [Wax or Fire Play](#wax-or-fire-play)
 - [Sharps](#sharps)
 - [CBT](#cbt )
 - [Medical Play](#medical-play)
@@ -22,7 +22,6 @@
 
 
 ### Sex Toys
-
 - Dildos
 - Vibrators/wands
 - Anal toys
@@ -32,8 +31,8 @@
 - Strap-ons
 
 
-### Impact Toys
 
+### Impact Toys
 - Canes
 - Crops
 - Paddles
@@ -46,16 +45,18 @@
 - Ropes
 - Vampire Gloves
 
-#### Other outchie-toys
 
+
+#### Other outchie-toys
 - nipple clamps
 - clothpins
 - finger-scratcher
 - electric toys - shock collars, wands, e-stim
 - CBT or pussy/tit specific toys
 
-### Sensual Toys
 
+
+### Sensual Toys
 - Blindfold
 - Masks
 - Gags
@@ -65,8 +66,9 @@
 - Cold stuff
 - Pinwheel
 
-##### Tunnelplay
 
+
+##### Tunnelplay
 - gloves
 - ginger
 - chili
@@ -74,9 +76,9 @@
 - capsaicin salve
 
 
+
 ### Restriction
 #### Ropes
-
 - Safety scissors/hooks
 - ROPES!
 - Blanket
@@ -85,8 +87,9 @@
 - Evil stuff like spikes, metal chopsticks, etc
 - Tape to protect fingers
 
-#### Other methods of restriction
 
+
+#### Other methods of restriction
 - Cuffs
 - Spreader bar
 - Chains
@@ -100,8 +103,8 @@
 - Straightjacket
 
 
-### Fire/Wax Play
 
+### Wax or Fire Play
 Please check in with the organizer if this is permitted at their event/the location. 
 
 - Burn first aid kit
@@ -120,8 +123,8 @@ Please check in with the organizer if this is permitted at their event/the locat
 - Hair-ties/headscarf, anything to keep hair away from fire 
 
 
-### Sharps
 
+### Sharps
 Please check in with the organizer if this is permitted at their event/the location. 
 
 - (Wound) Disinfectant
@@ -132,8 +135,8 @@ Please check in with the organizer if this is permitted at their event/the locat
 - Knife(s)
 
 
-### CBT 
 
+### CBT 
 Please contribute if inaccurate, open for contribution
 
 - Stretcher
@@ -148,25 +151,25 @@ Please contribute if inaccurate, open for contribution
 - Cock rings
 
 
-### Medical Play
 
+### Medical Play
 Please check in with the organizer if this is permitted at their event/the location. 
 Open for contribution. 
+
 
 
 ### PetPlay
-
 Open for contribution. 
 
 
-### Watersports
 
+### Watersports
 Please check in with the organizer if this is permitted at their event/the location. 
 Open for contribution. 
 
 
-### Outdoor Play
 
+### Outdoor Play
 Open for contribution
 
 - insect protection

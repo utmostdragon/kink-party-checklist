@@ -119,6 +119,7 @@ More detailed examples for each category can be found [here](toys.md).
 
 Safety measures may vary from play to play, please educate yourself on what you need, some items can be found in the detailed toys section linked above. 
 
+Also make sure that your desired play is allowed at the location. Not everyone can or wants to accomodate every kink. 
 
 - As already stated, charge everything that has to be charged
 - Batteries for everything that can't be charged (if you forgot them, make sure your partner doesn't notice and just pretend that it works)

@@ -2,11 +2,11 @@
 
 
 ## Content
-  - [Sex Toys](#sex-toys)
-  - [Impact Toys](#impact-toys)
-    - [Other Outch-Toys](#other-outchie-toys)
+- [Sex Toys](#sex-toys)
+- [Impact Toys](#impact-toys)
+- [Other Outch-Toys](#other-outchie-toys)
 - [Sensual Toys](#sensual-toys)
-  - [Tunnelplay](#tunnelplay)
+ - [Tunnelplay](#tunnelplay)
 -  [Restriction](#restriction)
 	-  [Ropes](#ropes)
     - [Other Methods](#other-methods-of-restriction)

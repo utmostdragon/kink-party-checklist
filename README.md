@@ -2,7 +2,9 @@
 
 
 
-Non-exhaustive list of potential things to do, to pack and tips on attending a kink or BDSM party. Note, this is for PLAY-partys, not dance partys.
+Non-exhaustive list of potential things to do, to pack and tips on attending a kink or BDSM party. Use yor own judgement of what you want and need from this page. 
+
+Note, this is for PLAY-partys, not dance partys.
 
 Not (just) for beginners. If you don't know how to use something on this list, don't do it. Maybe someone on the event you're about to attend can explain or show you. 
 
@@ -71,7 +73,7 @@ If you need help, feel unsafe, unsure about things, please talk to other people 
 - Credit/Debit Card
 
 
-## Hygiene
+## Hygiene / Toiletry Bag
 
 Nobody wants to clean up your mess, please slut responsibly!
 A lot of locations provide paper towels, surface disinfection and condoms, but it's safer to assume they don't.  
@@ -82,19 +84,19 @@ A lot of locations provide paper towels, surface disinfection and condoms, but i
 - Condoms, dental dams, gloves and other protective gear (Check the beyond usage date!)
 - Lube (make sure it's compatible with your condoms/toys)
 - Paper towels/wet wipes
-
 - Small first aid kit
+
+**Optional**
 - Personal medication
 - Personal aftercare-kit (e.g. snacks, body lotion, favorite plushy, cozy blanket)
 - Personal disability aids 
-
-**Optional**
 - Makeup
 - Contact Lenses
   - Container
   - Cleaning and storage solution
 - Seodorant/antitranspirant
 - (Soft-) Tampons or other female hygiene products
+
 
 
 ## Outfit

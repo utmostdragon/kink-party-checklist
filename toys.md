@@ -35,6 +35,7 @@ please contribute.
 - Tentacles
 - Cock rings
 - Strap-ons
+- Grinder
 - ...
 
 ### Restriction

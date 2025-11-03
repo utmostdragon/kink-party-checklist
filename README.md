@@ -95,7 +95,7 @@ A lot of locations provide paper towels, surface disinfection and condoms, but i
   - Container
   - Cleaning and storage solution
 - Seodorant/antitranspirant
-- (Soft-) Tampons or other female hygiene products
+- (Soft-) Tampons or other menstrual hygiene products
 
 
 
